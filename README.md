@@ -3,21 +3,6 @@ MAKE PEACE — DEFEND FREEDOM ✊🕊️ Open symbol for JUSTICE, PEACE and FREE
 
 # 🌍 Open Symbol License – Mehrsprachig
 
----
-
-## Deutsch
-Open Symbol License  
--------------------  
-Dieses Symbol („MAKE PEACE — DEFEND FREEDOM / #NVRBCKDWN“)  
-ist frei für jede nicht-kommerzielle Nutzung.  
-
-Es darf weltweit geteilt, gedruckt, vervielfältigt und verbreitet werden,  
-solange es im Kontext von Frieden, Freiheit und Gewaltfreiheit verwendet wird.  
-
-Eine kommerzielle Nutzung mit Gewinnabsicht ist ausdrücklich nicht erlaubt.  
-
-Das Symbol gehört keiner einzelnen Person, Organisation oder Institution,  
-sondern allen Menschen, die für Gerechtigkeit, Frieden und Freiheit eintreten.  
 
 ---
 
@@ -34,6 +19,23 @@ Commercial use for profit is strictly prohibited.
 
 The symbol does not belong to any individual, organization or institution,  
 but to all people who stand for justice, peace and freedom.  
+
+---
+
+## Deutsch
+Open Symbol License  
+-------------------  
+Dieses Symbol („MAKE PEACE — DEFEND FREEDOM / #NVRBCKDWN“)  
+ist frei für jede nicht-kommerzielle Nutzung.  
+
+Es darf weltweit geteilt, gedruckt, vervielfältigt und verbreitet werden,  
+solange es im Kontext von Frieden, Freiheit und Gewaltfreiheit verwendet wird.  
+
+Eine kommerzielle Nutzung mit Gewinnabsicht ist ausdrücklich nicht erlaubt.  
+
+Das Symbol gehört keiner einzelnen Person, Organisation oder Institution,  
+sondern allen Menschen, die für Gerechtigkeit, Frieden und Freiheit eintreten.  
+
 
 ---
 
