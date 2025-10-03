@@ -1,9 +1,7 @@
 # NVRBCKDWN-GLOBAL PEACE MOVEMENT
 MAKE PEACE — DEFEND FREEDOM ✊🕊️ Open symbol for JUSTICE, PEACE and FREEDOM. FREE to use.
 
-# 🌍 Open Symbol License – Mehrsprachig
-
-
+# 🌍 Open Symbol License
 ---
 
 ## English
